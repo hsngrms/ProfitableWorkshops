@@ -1,1 +1,1 @@
-﻿Mod Page on Nexus: https://www.nexusmods.com/mountandblade2bannerlord/mods/1426
+﻿Mod Page on Nexus: https://www.nexusmods.com/mountandblade2bannerlord/mods/1830
